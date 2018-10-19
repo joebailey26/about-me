@@ -1,2 +1,2 @@
-# about-me
+# About Me
 Information about me
