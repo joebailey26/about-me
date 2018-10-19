@@ -13,3 +13,11 @@ During my early life, my Mum would always take photos of me. She’d record ever
 
 Many of my photos have been featured in my local paper, The Cambridge News. My photos have also been shortlisted for two competitions, The LandLove 2017 Photography Competition, and The Herts Motor Show Classic Car Photography Competition. I have also taken photos for the Cambridge University Sports Centre, a Vintage Weigh and Pay event, and a Charity Golf event.
 
+If there’s one thing I’ve learnt from my venture into photography over the past 5 years, it’s that you're never done learning. You’ve mastered this skill? OK, get ready for the next. Photography is an ever-expanding field of interest for people across the world. It’s a truly universal language, creating friendships no-one thought possible. Photography continues to grasp my interest no matter where my life takes me.
+
+
+> "The best thing about a picture is that it never changes, even when the people in it do" - Andy Warhol
+
+> "The whole point of taking photos is so that you don't have to explain things in words" - Elliott Erwitt
+
+Joe
